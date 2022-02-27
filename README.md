@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TheLokiCrafter
+- 👀 I’m interested in playing Minecraft
+- 🌱 I’m currently learning things about Minecraft
+- 💞️ I’m looking to collaborate with openWebX and TheREDCrafter
+- 📫 You can reach me with this Link: https://www.youtube.com/watch?v=dQw4w9WgXcQ
